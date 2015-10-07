@@ -4,4 +4,5 @@
 #4 abcd
 #5 sasasasasa
 #6 I have a dream
-#7 what did you do to high school? 
+#7　21511008 hiroki
+
